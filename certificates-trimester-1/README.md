@@ -1,1 +1,1 @@
-This certificate is about OSS
+first semester certificates
